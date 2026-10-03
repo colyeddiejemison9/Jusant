@@ -232,4 +232,4 @@ Jusant is available as a complete free version with all features and updates inc
 Don't miss out on the chance to experience Jusant—download your free copy today and start your adventure!
 
 ---
-**Last updated:** 2026-10-03 13:02:40 UTC
+**Last updated:** 2026-10-03 17:46:51 UTC
